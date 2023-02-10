@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Jabbarlee
-- 👀 I’m interested in ...coding 
+- 👀 I’m a web wizard a Full stack developer.
 - 🌱 I’m currently learning ...web 3 development 
 - 💞️ I’m looking to collaborate with .. The best tech guys all around the world 
 - 📫 How to reach me ...email momohabduljabbar@gmail.com phone number 07066986305 discord Vintage_jab#4494 
